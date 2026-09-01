@@ -1,3 +1,5 @@
+1°a Versão Portifólio (criado em 2024) usando o Alura.
+
 ## Boas vindas ao meu perfil🤠🏐
 
 Meu nome é Samuel Araújo
